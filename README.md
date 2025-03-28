@@ -66,7 +66,7 @@ You are my ![Visitor Count](https://profile-counter.glitch.me/yxn4065/count.svg)
 
 > 📦 70.9 kB Used in GitHub's Storage 
  > 
-> 💼 Opted to Hire
+> 💼 Opted to Phd
  > 
 > 📜 4 Public Repositories 
  > 
